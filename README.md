@@ -3,7 +3,7 @@
 
 - 💬 Ask me about **react,Javascript ect.**
 
-- 📫 How to reach me **znaidikods2003@gmailcom**
+- 📫 How to reach me **znaidikods2003@gmail.com**
 
 - ⚡ Fun fact **I do painting and Sherlock Holmes fan**
 
